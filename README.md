@@ -10,7 +10,7 @@
 
 *I will appreciate talking with you, and I’d prefer you to whisper to me so I can notify you of messages*
 
-<img width="650" height="450" alt="05292" src="https://github.com/user-attachments/assets/96c0059e-003a-4e55-82c8-a489177242d6" />
+<img width="650" height="450" alt="title-28" src="https://github.com/user-attachments/assets/6cadd252-a8e7-454a-b654-6f431967c711" />
 
    I hearts my friends, all of them so nice <33
    
