@@ -1,4 +1,5 @@
- <img width="400" height="20" alt="devider-blue" src="https://github.com/user-attachments/assets/f4701cb2-13be-4817-aece-ffdedd275d89" />
+ <img width="400" height="20" alt="devider-blue" src="https://github.com/user-attachments/assets/f4701cb2-13be-4817-aece-ffdedd275d89" /><img width="400" height="20" alt="591924040-f4701cb2-13be-4817-aece-ffdedd275d89" src="https://github.com/user-attachments/assets/112bb93a-e13b-4d63-9871-ba4f6b97b140" />
+
 
  *I’m not good at interacting first, Mostly I will feel awkward communicating.
 
@@ -14,4 +15,5 @@
 
    I hearts my friends, all of them so nice <33
    
-   <img width="400" height="20" alt="devider-blue" src="https://github.com/user-attachments/assets/f4701cb2-13be-4817-aece-ffdedd275d89" />
+   <img width="400" height="20" alt="devider-blue" src="https://github.com/user-attachments/assets/f4701cb2-13be-4817-aece-ffdedd275d89" /><img width="400" height="20" alt="591924040-f4701cb2-13be-4817-aece-ffdedd275d89" src="https://github.com/user-attachments/assets/78ca2458-231c-42ba-9371-c93cbff18d63" />
+
