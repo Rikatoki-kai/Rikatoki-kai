@@ -1,7 +1,7 @@
  <img width="400" height="20" alt="devider-blue" src="https://github.com/user-attachments/assets/f4701cb2-13be-4817-aece-ffdedd275d89" /><img width="400" height="20" alt="591924040-f4701cb2-13be-4817-aece-ffdedd275d89" src="https://github.com/user-attachments/assets/112bb93a-e13b-4d63-9871-ba4f6b97b140" />
 
 
- *I’m not good at interacting first, Mostly I will feel awkward communicating.
+ *I’m not good at interacting first, Because I will feel very awkward to communicating.
 
    
    -17   /DNI Proship and pedos..
